@@ -3,7 +3,7 @@ Hi,
 
 I go it/its or any dehumanizing pronouns (ex. that/thats). I may use mirror pronouns sometimes so just be wary. I sometimes prefer to go by no pronouns at times, I will lyk. <3 Also FYI i'd rather not be called by they/them it just doesn't sit right with me. Learn more about my Identity w my pronouns page! I suggest you read it before interacting with me.
 
-I like alot of things and I'm Multifandom. But my main fandoms are most if not all popular roblox fandoms (mainly phighting), DnB (dave and bambi), IHNMAIMS (I have no mouth and I must scream), any minecraft smp under the sun, roblox myths and roblox ARGS.
+I like alot of things and I'm Multifandom. But my main fandoms are most if not all popular roblox fandoms (mainly phighting), DnB (dave and bambi), IHNMAIMS (I have no mouth and I must scream), alot of minecraft smps (mainly lssmp, msp, dsmp and uusmp), roblox myths and roblox ARGS.
 
 If you want to make me happy, some of my favorite (comfort) charcaters are Aubree, AM, Ivan, Painbody (esp painbody) and Catshot.
 
