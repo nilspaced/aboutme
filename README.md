@@ -5,7 +5,7 @@ I go it/its or any dehumanizing pronouns (ex. that/thats). I may use mirror pron
 
 I like alot of things and I'm Multifandom. But my main fandoms are most if not all popular roblox fandoms (mainly phighting), DnB (dave and bambi), IHNMAIMS (I have no mouth and I must scream), alot of minecraft smps (mainly lssmp, msp, dsmp and uusmp), roblox myths and roblox ARGS.
 
-If you want to make me happy, some of my favorite (comfort) charcaters are Aubree, AM, Ivan, Painbody (esp painbody) and Catshot.
+If you want to make me happy, some of my favorite (comfort) charcaters are Aubree, AM, Ivan, Painbody (esp painbody), Manepear, LettuceK, Clownpierce and Catshot.
 
 I like shoe gaze, alternative rock, death metal, metal, rap rock and any pop song that sounds good honestly.
 
